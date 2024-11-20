@@ -1,1 +1,0 @@
-# seuritych.github.io
